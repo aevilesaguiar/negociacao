@@ -468,7 +468,380 @@ Nesses tipos de negociação, prepare-se e negocie como de costume. A negociaç�
 
 
 
+ Fechar o negócio
  
+Siga uma série de dicas para fechar um acordo que atenda às necessidades de sua organização — evitando erros mentais e gerenciando as emoções que podem dificultar a obtenção do melhor resultado.
+
+![image](https://user-images.githubusercontent.com/52088444/188143004-48a40577-a281-4474-beb1-f4f7a9a1a313.png)
+
+
+Evitar erros mentais
+Até mesmo as pessoas mais bem preparadas podem ser vítimas de erros mentais durante uma negociação, e isso pode levar a um resultado decepcionante. Erros de cognição podem resultar em dinheiro e tempo perdidos, prazos apertados ou impossíveis, ou em reputação danificada. Ao compreender os erros mentais que normalmente ocorrem nas negociações, você pode aprender a evitá-los e corrigi-los.
+
+Ser flexível
+
+
+Negociações nem sempre são previsíveis. Por exemplo, a outra parte pode ser substituída, ou oportunidades recém-descobertas podem levar o outro lado a realizar uma negociação mais difícil.
+
+Para evitar que eventos inesperados interfiram em suas negociações, você deve:
+
+Permanecer flexível e paciente.
+
+Estar aberto para trabalhar com novas pessoas e sob circunstâncias modificadas.
+
+Entender sempre a mudança como uma oportunidade de aprendizagem, criatividade e novas oportunidades.
+
+Definir expectativas razoáveis
+
+Algumas pessoas entram em negociações com expectativas descabidas. Em função disso, eliminam qualquer zona possível de acordo.
+
+Para evitar esse tipo de erro, confirme que suas expectativas sejam realistas pesquisando situações semelhantes. Além disso, se acredita que as premissas da outra parte são descabidas, use os fatos para respaldar sua visão.
+
+
+Equilibrar seu nível de confiança
+
+
+É importante estar confiante durante as negociações. Se estiver incerto sobre suas habilidades ou posição de negociação, o outro lado terá menos trabalho para conseguir o que deseja — isso pode resultar em um pior negócio para você.
+
+Excesso de confiança, por outro lado, também pode levar a negociação ao fracasso. Você pode superestimar seus pontos fortes e subestimar os pontos fortes da outra parte. Já a confiança excessiva pode cegá-lo quanto aos perigos e às oportunidades que possam aparecer ao longo da negociação.
+
+Para evitar tropeços em uma negociação devido à falta de confiança ou à confiança excessiva, você deve:
+
+Estar preparado. Pesquise as questões que você terá de discutir. Você deve se armar de fatos e informações relevantes, pois toda negociação é diferente. Um sucesso anterior não garante um sucesso futuro.
+
+Ter uma estratégia de reserva. Mesmo que sua estratégia inicial seja forte, você pode se deparar com obstáculos imprevistos. Considere diferentes cenários de como a negociação pode progredir e prepare planos de contingência para as várias possibilidades.
+
+Obter uma opinião objetiva. Peça a observadores objetivos que examinem suas principais premissas, a posição da outra parte e o acordo em questão. Eles podem apontar possíveis deficiências em sua posição e problemas que você talvez não tenha considerado ao se preparar para a negociação.
+
+Superar o “efeito da fama”
+
+Até mesmo os negociadores mais experientes podem ser suscetíveis ao efeito da fama — dando mais atenção a fatores relacionados a prestígio ou empolgação do que a questões práticas. Por exemplo, o número de prêmios que um fornecedor recebeu pode atrapalhar sua análise objetiva do preço que está sendo oferecido.
+
+Para evitar ser seduzido pela fama, você deve:
+
+Resistir a se distrair com características atraentes. Obtenha uma visão equilibrada de todos os fatores envolvidos na negociação — e não apenas dos mais interessantes ou empolgantes.
+
+Criar um sistema de pontuação. Atribua pontos aos vários fatores que você terá de discutir, atribuindo valores mais altos àqueles que considerar mais importantes. No decorrer das negociações, examine periodicamente sua pontuação para manter o foco em seus verdadeiros interesses.
+
+Separar informações de influência. Quando você descobrir que está sendo influenciado por certos tipos de dados, mais do que por outros, refaça o foco de suas metas.
+
+Administrar suas emoções
+
+Em um momento ou outro no curso de uma negociação, é provável que você passe por fortes emoções. Algumas podem ser positivas — como a alegria ou o alívio de resolver um problema difícil — enquanto outras — como a raiva ou a competitividade — podem interferir em sua capacidade de pensar com clareza e criatividade. Saber administrar as respostas emocionais é uma habilidade fundamental na negociação.
+
+Parar com a escalada da negociação
+
+
+Em negociações difíceis ou competitivas, pessoas que em outras circunstâncias se comportariam de forma equilibrada, passam a agir de uma forma que ultrapassa os limites do razoável. Alguns cometem esse erro porque não admitem perder. Outros são pegos pela “febre do leilão” — comportamento irracional que surge quando indivíduos passam a competir entre si com lances sucessivos em um esforço para prevalecer.
+
+Para evitar a escalada irracional da negociação, você deve:
+
+Consultar sua BATNA. Lembre-se de que o dinheiro não desperdiçado em um negócio com preço inflado é dinheiro que fica disponível para investimento em outras iniciativas.
+
+Lembrar-se de sua posição de desistência. Se você se comprometer com uma posição de desistência, ficará menos tentado a aumentar seus termos durante as negociações.  
+
+Estabelecer pontos de interrupção claros. Durante a negociação, pare regularmente e avalie a situação para verificar se você não perdeu o foco.
+
+
+
+Reconhecer as tendências inerentes
+
+
+As pessoas em geral percebem a “verdade” tendenciosamente, buscando acomodá-la a seu próprio ponto de vista. Por exemplo, os fãs de uma equipe esportiva normalmente acham que o árbitro está sendo injusto em relação ao time deles. Na negociação, essa parcialidade pode levar a emoções negativas, comprometer a confiança e reduzir a possibilidade de se chegar a um acordo construtivo.
+
+Para evitar ser influenciado por tendências inerentes, você deve:
+
+Tentar ver a questão sob a perspectiva da outra parte. Antes de poder mudar a mente das pessoas, é necessário entender o ponto de vista delas.
+
+Imaginar que você é um repórter. Pense em como você descreveria com precisão a posição de cada lado em questões polêmicas.
+
+Apresentar a questão a colegas objetivos. Explique a situação e solicite a opinião deles sem dizer de que lado você está.
+
+Ter um plano de emergência
+
+Ao se preparar para as fortes emoções pelas quais você pode passar durante uma negociação, é possível fazer escolhas conscientes sobre como reagir. Para ter certeza de que as emoções incontidas não vão interferir em sua negociação, crie um plano de emergência com antecedência. Seu plano deve incluir os seguintes passos:
+
+Tomar sua temperatura emocional. Se a discussão for conflituosa, avalie periodicamente as suas emoções. São administráveis? Estão começando a aflorar? Estão fora de controle?
+
+Se você começar a perder o controle, escolha uma forma de abrandar as emoções. Você pode decidir de antemão que contará até 10, que dará uma parada para ir ao banheiro ou que se sentará em silêncio por um momento.
+
+Diagnosticar o problema. Descubra o que está causando sua resposta emocional. Quando concluir que se sente frustrado devido à falta de opções para a negociação ou por estar com fome, você vai conseguir responder de forma apropriada.
+
+Formular uma finalidade antes de responder. Reserve um tempo decidindo sobre o que você deseja obter, antes de expressar suas emoções. Quer que os outros saibam do impacto do comportamento deles em você? Deseja influenciá-los de alguma forma? Ao compreender a sua finalidade, você pode decidir sobre a melhor atitude a ser tomada.
+
+Dicas para gerenciar o afloramento de emoções
+
+
+Solicitar uma pausa. Alguma distância da discussão pode ser tranquilizador e restaurar a objetividade.
+
+Descobrir o que está contrariando a outra parte. Depois de entender o que alimenta as emoções da outra parte, expresse empatia e faça perguntas para esclarecer a perspectiva dela.
+
+Explicar calmamente o que está contrariando você mesmo. Não responda de maneira explosiva a alguém do seu grupo.
+
+Manter o foco nas questões. As pessoas podem perder o foco quando se sentem pessoalmente atacadas, enganadas, humilhadas ou desrespeitadas. Mantenha a discussão impessoal e focada nas questões.
+
+Pedir a ajuda de um mediador. Se não for possível avançar com a outra parte em função das emoções alteradas, sugira pedir a ajuda de um facilitador neutro.
+
+Resolver impasses, paralizações e indecisões
+
+Tempos difíceis nas negociações sempre acontecem. Os transtornos podem ser causados por impasses, paralizações e indecisões. Identifique o obstáculo com o qual você está lidando e aplique a estratégia adequada para superá-lo.
+
+Finalizar a negociação
+
+Três maneiras de consolidar o compromisso de um acordo
+
+
+O ritual social conforme a cultura, como um aperto de mãos ou inclinação do corpo à frente, sinaliza o compromisso com o negócio.
+
+Um anúncio público do acordo torna mais difícil para qualquer uma das partes voltar atrás.
+
+Um acordo por escrito chama a atenção das pessoas para o que está sendo prometido, aumentando o compromisso.
+
+ 
+ Avaliar o resultado e o seu próprio desempenho
+
+
+Depois da conclusão de uma negociação, avalie como tudo correu, de modo que você possa aplicar o que aprendeu em sua próxima negociação. Faça isso de imediato, quando os procedimentos ainda estão frescos em sua memória.
+
+Para avaliar o resultado, compare os resultados com:
+
+Suas metas iniciais
+
+Sua BATNA e posição de desistência
+
+Padrões objetivos, como valor de mercado, eficiência, custos e lucros
+
+Opiniões de especialistas
+
+Além disso, considere também as ações do outro negociador. Trata-se de uma organização com a qual você gostaria de trabalhar novamente? O que a outra parte faz bem? Quais os erros que eles cometeram?
+
+Para avaliar o seu desempenho, pense no que funcionou bem e no que você faria de forma diferente na próxima vez. Considere estas perguntas:
+
+Você estava bem preparado? Havia alguma informação valiosa faltando, à qual você já deveria ter tido acesso quando entrou na negociação?
+
+Como você se saiu com relação à estimativa de BATNA e ZOPA da outra parte? Se não estivesse por perto, o que você teria perdido?
+
+Você podia ter feito algo de maneira diferente que talvez fizesse o processo avançar de forma mais tranquila?
+
+Você conseguiu estabelecer um relacionamento de confiança e cooperação com as outras partes? Por que sim ou por que não?
+
+Você conseguiu ler os sinais e a linguagem corporal da outra parte?
+
+Ao encontrar um problema, você conseguiu chegar a uma solução criativa?
+
+Peça também a alguém mais que esteve na sala de negociação para lhe dar um feedback. 
+
+Depois de obter insights sobre como as coisas ocorreram, defina metas de desenvolvimento pessoal para a sua próxima negociação. Além disso, documente e compartilhe as lições com outras pessoas de sua organização para poder aprender com a experiência.
+
+Cumprir o acordo
+
+
+Após o fechamento do negócio, honre todos os acordos que você fez. Se não fizer isso, você poderá enfrentar uma ação penal e prejudicar a sua reputação. Cumprir seus acordos também é a melhor maneira de garantir que as partes respeitem os seus respectivos compromissos.
+
+Assegure-se de que todas as pessoas de sua organização que sejam responsáveis pela execução dos termos do acordo obtenham imediatamente as informações de que precisam para cumprir o acordo. Essas informações podem incluir uma cópia do acordo, a lista de contatos da outra organização, pedidos de compra e cronogramas.
+
+Superar obstáculos ao sucesso
+
+A probabilidade de sucesso de uma negociação diminui quando questões de comunicação, personalidades difíceis e outros obstáculos perturbam o processo. Aprenda a superar obstáculos — e a chegar a acordos éticos.
+
+
+Problemas de comunicação
+
+
+Não é possível avançar em uma negociação sem ter boa comunicação. Quando você suspeitar que uma negociação está se desintegrando devido a problemas de comunicação, você deve:
+
+Procurar um padrão. Reproduza mentalmente o que foi comunicado, como foi comunicado e por quem. A confusão ou o mal-entendido tem origem em uma única questão? Você ou as outras partes tinham premissas ou expectativas que não foram mencionadas?
+
+Levantar a questão difícil. Sem acusar ninguém, solicite às outras partes que expliquem a perspectiva deles sobre a questão. Ouça ativamente e reconheça o outro ponto de vista. Explique sua perspectiva e depois tente identificar o problema.
+
+Trocar os representantes. Se não conseguir fazer progressos, considere a possibilidade de contar com pessoas diferentes nas funções de negociadores. Não vale a pena perder um bom negócio em razão de comunicação insatisfatória.
+
+
+Dicas de como ouvir atentamente
+
+
+Você melhorará a sua comunicação — e aprenderá mais sobre as oportunidades de ganho mútuo — se praticar a escuta ativa:
+
+Mantenha contato visual com quem está falando e observe a linguagem corporal e os sinais não verbais.
+
+Concentre-se no que a pessoa está dizendo — sem deixar sua mente vagar.
+
+Aguarde até que o interlocutor tenha terminado, para formular sua resposta.
+
+Faça perguntas para obter mais informações e para incentivar a pessoa a continuar.
+
+Repita o que ouviu, com suas palavras, para confirmar seu entendimento.
+
+
+Diferenças de gênero e cultura
+
+Negociações sempre requerem um equilíbrio delicado entre determinação e diplomacia. Quando você e as outras partes têm culturas de origem ou estilos diferentes, encontrar o equilíbrio certo pode ser particularmente desafiador. Ao preparar os aspectos estratégicos e interpessoais de sua negociação, você amplia as chances de obter um resultado que atenda às necessidades de todos.
+
+
+70%. Essa é a porcentagem de negociações interculturais que fracassam
+
+Fazer sua pesquisa
+
+
+Como negociadores, as pessoas têm diferentes estilos de comunicação, valores, interesses e perspectivas sobre em que consiste o sucesso. Essas dessemelhanças talvez se devam a fatores como cultura, raça, gênero, religião, instrução ou personalidade. Conheça o máximo possível a respeito das outras partes e da cultura, das expectativas e dos estilos delas, antes de a negociação começar. Esteja ciente de fatores como:
+
+Rituais sociais
+
+Grau de formalidade
+
+Quantidade de contato visual
+
+Valor dado ao tempo
+
+Valor dado ao desenvolvimento de relacionamentos
+
+Atitudes diretas vs. atitudes indiretas
+
+Grau de rigidez vs. flexibilidade
+
+Você pode pesquisar diferentes normas na internet, em livros e em conversas com os colegas que têm experiência com a respectiva cultura.
+
+A partir do momento que você tenha mais conhecimento do estilo e dos valores das partes, adapte seu comportamento de acordo. Por exemplo, se um negociador parece formal e sério, não brinque nem seja excessivamente jovial. Por outro lado, se as outras partes quiserem conhecer você e seus colegas, em vez de apressar a finalização do acordo, dedique algum tempo para desenvolver a confiança e o respeito mútuo. Essas atitudes compensarão em longo prazo, na forma de melhores acordos e parcerias duradouras.
+
+Evitar os estereótipos
+
+
+Embora seja importante compreender e respeitar os diferentes costumes e crenças, use essas informações apenas como diretrizes gerais. Evite fazer suposições a respeito da outra parte. Atitudes e interesses individuais muitas vezes diferem das atitudes e interesses do grupo ao qual a pessoa pertence. Assim como duas pessoas de uma mesma família podem ter crenças e valores conflitantes, duas pessoas de um mesmo país ou grupo social não necessariamente percebem determinada questão da mesma forma.
+
+Para evitar o uso de estereótipos, foque no indivíduo com o qual está trabalhando. Do contrário, você poderá perder sinais importantes e negligenciar questões importantes. Por exemplo, você pode interpretar que a outra parte está interrompendo as atividades para evitar o confronto, mas, na verdade, talvez ela esteja sinalizando uma posição de desistência da organização dela.
+
+Superar diferenças
+
+
+Se tiver dificuldades para compreender ou trabalhar com pessoas de outra cultura ou do sexo oposto, você deve:
+
+Estabelecer um ponto em comum. Descobrir coisas que você pode compartilhar com a outra parte. Desenvolver um relacionamento mais próximo ajuda a eliminar as guerras de ego e a necessidade de manter o respeito — problemas que podem vir à tona em negociações.
+
+Aprender a desenvolver confiança. As abordagens para desenvolver a confiança variam conforme a cultura. Por exemplo, em alguns locais, o contato visual direto é um sinal de confiabilidade, enquanto em outros é entendido como agressividade. Saiba o que inspira confiança na pessoa com quem você está trabalhando.
+
+Expressar as diferenças em termos de normas e suposições que você acredite que estejam causando o problema. Após identificar os obstáculos, você deve poder seguir em frente.
+
+Como promover relações de trabalho produtivas? Esteja atento às principais diferenças culturais e saiba como lidar com elas.
+
+Pessoas difíceis
+
+Seu êxito durante uma negociação depende muito das interações com os demais. Infelizmente, nem todas as partes agem com profissionalismo e integridade. É mais fácil lidar com pessoas difíceis quando se está preparado para administrar o comportamento provocativo delas.
+
+Negociadores duros na queda
+
+
+Há pessoas que enxergam todo acordo como uma batalha. Use estas estratégias ao se deparar com negociadores altamente competitivos e duros na queda.
+
+Conheça o jogo deles. Desconfie de propostas descabidas, concessões relutantes e fingimento. Não permita que esse comportamento o intimide nem o impeça de implementar sua estratégia.
+
+Seja cuidadoso com as informações que você divulga. Só divulgue informações que não possam ser usadas contra você.
+
+Sugira pacotes ou opções alternativos. Se as partes quiserem compartilhar informações, apresente a elas as opções e os pacotes. É provável que as partes façam perguntas para esclarecer e comparar as propostas. As respostas podem revelar informações que vão ajudá-lo a compreender melhor os interesses e as preocupações deles. 
+
+Indique sua disposição de desistir. Se os outros negociadores perceberem sua disposição para se retirar da mesa em função do comportamento difícil deles, talvez eles voltem atrás e se tornem mais cooperativos.
+
+
+
+Sabotadores potenciais
+
+
+Quando as pessoas acreditam estar no lado que está perdendo na negociação, podem resistir ou buscar maneiras de sabotar o acordo. Stakeholders, funcionários e clientes, todos podem ser potenciais sabotadores, se tiverem o poder para bloquear suas negociações.
+
+A resistência deles pode ser passiva, na forma de não comprometimento com as metas e com o processo para alcançá-las. Por exemplo, alguém que sinta que seu emprego está ameaçado devido a uma fusão pode atrasar o fornecimento das informações de que você precisa para a negociação.
+
+Os sabotadores podem se opor ativamente, ou tentar destruir o processo. Especialmente em organizações multilaterais, certos stakeholders podem optar pela não realização do acordo. Antecipe-se e prepare-se para essa possibilidade.
+
+
+
+Dicas para lidar com sabotadores
+
+
+Identifique possíveis sabotadores. Antes da negociação, relacione os stakeholders, seus respectivos interesses e o poder que têm de influenciar o acordo e sua implementação.
+
+Considere ampliar o acordo. Inclua algo no acordo que beneficie stakeholders que, de outra forma, se sentiriam compelidos a prejudicar a negociação.
+
+Comunique os benefícios potenciais. Explique as vantagens do negócio aos potenciais sabotadores a fim de ajudá-los a mudar o foco de negativo para positivo.
+
+Reflita sobre o problema do controle. Algumas pessoas resistem à mudança porque mudar representa certa perda de controle sobre suas vidas. Você pode devolver parte desse controle transformando-as em parceiras ativas no processo de negociação.
+
+Desenvolva uma coalizão. Uma coalizão pode superar os sabotadores e alterar o equilíbrio de poder na negociação a seu favor.
+
+
+
+Partes antiéticas
+
+Em algum momento você vai se deparar com pessoas que mentem. Você pode experimentar vários sentimentos — raiva, decepção, ansiedade, surpresa —, mas precisará administrar isso. Você também terá ideias conflitantes de como lidar com a situação. Você deve desistir ou tentar maximizar seu valor? Você deve chamar a atenção da pessoa sobre a inverdade ou deixar para lá?
+
+Para responder a uma mentira:
+
+Fique calmo e pergunte a si mesmo se se trata realmente de uma mentira. É possível que a parte esteja apenas desinformada. 
+
+Se você concluir que é uma mentira, decida se deve desistir ou persistir na negociação. Sua decisão dependerá do quanto você tem a perder. Se você tiver uma BATNA (melhor alternativa a um acordo) forte ou se puder desistir da negociação sem maiores consequências, faça isso. Muita vezes, no entanto, não é fácil encerrar uma negociação.
+
+Para desencorajar mentiras futuras, avise às outras partes de que você está ciente da mentira. Corrija educadamente as informações e dê a eles uma saída diplomática. Por exemplo, você pode dizer: “O cálculo de custo que vocês fizeram não corresponde aos nossos números. Vocês talvez estejam usando dados antigos.”
+
+Se quiser receber um pedido de desculpas ou de reconhecimento, seja mais direto. Você pode adicionar: ldquo;Essa discrepância está me deixando incomodado. Vocês teriam alguma sugestão para amenizar esse desconforto?”
+
+Insista na documentação e torne os termos do acordo dependentes da exatidão dessa documentação.
+
+Insista em acrescentar mecanismos de controle e contingências ao negócio, como depósito de caução ou penalidades por não conformidade.
+
+
+Em alguma circunstância a mentira é aceitável?
+
+
+Não é aceitável mentir durante uma negociação. Mentir é antiético e, em alguns casos, ilegal. Pode arruinar sua reputação e a reputação da organização que você representa.
+
+Em vez de mentir, trabalhe para aprimorar sua posição e suas habilidades de negociação, de modo que você nunca sinta necessidade de distorcer a verdade.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
